@@ -1,4 +1,4 @@
-# Wu Yandong
+# Yandong Wu
 Student, Jilin University
 
 Email: wuyd2124@mails.jlu.edu.cn
